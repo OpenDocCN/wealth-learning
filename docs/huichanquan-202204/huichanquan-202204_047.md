@@ -1,0 +1,11 @@
+# 山东蓝翔校长女儿实名举报母亲
+
+> 原文：[`mp.weixin.qq.com/s?__biz=MzIyMDYwMTk0Mw==&mid=2247534718&idx=2&sn=af975de5af8431639e44f1eea1d20eef&chksm=97cb8346a0bc0a50f1e8d6b2346d33efec8ead8a1a6e480791580e1a013233a9d007d00be390&scene=27#wechat_redirect`](http://mp.weixin.qq.com/s?__biz=MzIyMDYwMTk0Mw==&mid=2247534718&idx=2&sn=af975de5af8431639e44f1eea1d20eef&chksm=97cb8346a0bc0a50f1e8d6b2346d33efec8ead8a1a6e480791580e1a013233a9d007d00be390&scene=27#wechat_redirect)
+
+![](http://mp.weixin.qq.com/s?__biz=Mzg3OTExNDYyOQ==&mid=2247484658&idx=1&sn=42a562e73c82fab5b1c51555b5291a2f&chksm=cf082418f87fad0e2ffba96601b53b86735437f8742eb4b52c833fa279da087db0c753a92463&scene=21#wechat_redirect)
+
+<mpvideosnap class="js_uneditable custom_select_card channels_iframe videosnap_video_iframe" data-pluginname="videosnap" data-id="export/UzFfAgtgekIEAQAAAAAAVYsLdvwT6AAAAAstQy6ubaLX4KHWvLEZgBPE_KNkPF1jAP6DzNPgMIuNS7R_Mu_HfjgCO7LuAZTW" data-url="https://findermp.video.qq.com/251/20304/stodownload?encfilekey=rjD5jyTuFrIpZ2ibE8T7YmwgiahniaXswqzyyeAsYs1hIia8XUdVyeLwXIk3SSXKvdiaXqZQWQID7deyI9ItlOVkGcDmXXhBEP8cUBsYmdntlvVI70552mEf62Q&amp;adaptivelytrans=0&amp;bizid=1023&amp;dotrans=0&amp;hy=SH&amp;idx=1&amp;m=&amp;scene=0&amp;token=AxricY7RBHdVbcXhfXq4iaBmJGa9c6jPh2WEp7hBBZHsBuibtTlCodD4iaAy4lOSCicu3UeV5LIgpy0Y" data-headimgurl="http://wx.qlogo.cn/finderhead/ibq4aVwOt6HNqrr8OD3sCviaytF3B8TqCwHicxsuIanAJo/0" data-username="v2_060000231003b20faec8c6e48a1acbd3ce04ef33b077a1e41d0d3794ed88ea537878dbe65910@finder" data-nickname="灰产圈+" data-desc="【#山东蓝翔校长女儿实名举报母亲# 孔素英暂未回应】4 月 27 日，山东蓝翔校长女儿实名举报母亲孔素英。#蓝翔校长女儿实名举报母亲非法转移房款#她表示，母亲孔素英在媒体上说的均不属实，她非法处置商丘天伦花园小区房产的目的，是想转移卖房款。并且孔素英早已持有美国绿卡，在美国西雅图有别墅。目前举报是否属实有待查证，孔素英暂未回应。2021 年，孔素英曾举报前夫荣兰祥公司偷漏税@灰产圈+ " data-nonceid="15502963246088928787" data-type="video" data-width="1080" data-height="1920"></mpvideosnap>![](img/a34cf3968e8a6e058b9e2d49827b3061.png "小米 6-0419.055.gif")![](https://mp.weixin.qq.com/s?__biz=Mzg5ODAwNzA5Ng==&mid=2247487827&idx=1&sn=63556070462cc45a483818d38efe4c71&chksm=c0687804f71ff1123c4910c6647ce0f3735ec04aff31fe9ee3d746666e360b429f481d3842ef&token=1055519437&lang=zh_CN&scene=21#wechat_redirect)![](img/4ae7206a4c427d7539919c42fe33ff8a.png "小米 6-0419.052.gif")
+
+← 向右滑动与灰产圈互动交流 →
+
+![](img/bc3a18b119d88e58ddcdd55b631abf6b.png)
