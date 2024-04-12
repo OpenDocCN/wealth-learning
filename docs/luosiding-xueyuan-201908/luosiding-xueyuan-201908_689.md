@@ -1,0 +1,19 @@
+# 燕雀安知鸿鹄之志？
+
+# 燕雀安知鸿鹄之志？
+
+银行螺丝钉 : 燕雀安知鸿鹄之志？约翰博格自立门户 前面我们介绍了两位投资大师：股神巴菲特，和他的好搭档 查理芒格。分享了他们的人生经历、投资生涯和投资的理 念。大家可以在这里查看：
+
+我们再来讲一位跟我们关系非常密切的投资大师——约翰博 格。
+
+第 1 期： 第 2 期：
+
+第 3 期：
+
+[大家也可以直接在喜马拉雅上收听《银行螺丝钉带你读书》 专辑，可以一边听书一边做自己的事儿，更加方便：](https://mp.weixin.qq.com/s?__biz=MzAwNzQ5ODk3Nw%3D%3D&mid=2651035952&idx=1&sn=b9c5a2afad856a8651f5034950f4dcac&chksm=808a04beb7fd8da80033025188a841673515aac1d0ec36e590e29d33a7a58576b362adbd958e&scene=21&wechat_redirect)[书中自](https://mp.weixin.qq.com/s?__biz=MzAwNzQ5ODk3Nw%3D%3D&mid=2651035952&idx=1&sn=b9c5a2afad856a8651f5034950f4dcac&chksm=808a04beb7fd8da80033025188a841673515aac1d0ec36e590e29d33a7a58576b362adbd958e&scene=21&wechat_redirect) [有黄金屋](https://mp.weixin.qq.com/s?__biz=MzAwNzQ5ODk3Nw%3D%3D&mid=2651036935&idx=2&sn=83f3fd9c227cee04eca26c2a52292cca&chksm=808a0089b7fd899f84c52a86fbf970b479a217ec6719f41f2763d76a105c17ffdd9243415fb4&scene=21&wechat_redirect)[+|+](https://mp.weixin.qq.com/s?__biz=MzAwNzQ5ODk3Nw%3D%3D&mid=2651036935&idx=2&sn=83f3fd9c227cee04eca26c2a52292cca&chksm=808a0089b7fd899f84c52a86fbf970b479a217ec6719f41f2763d76a105c17ffdd9243415fb4&scene=21&wechat_redirect)[螺丝钉带你读书合集 查理芒格故事汇总](https://mp.weixin.qq.com/s?__biz=MzAwNzQ5ODk3Nw%3D%3D&mid=2651036935&idx=2&sn=83f3fd9c227cee04eca26c2a52292cca&chksm=808a0089b7fd899f84c52a86fbf970b479a217ec6719f41f2763d76a105c17ffdd9243415fb4&scene=21&wechat_redirect)[+|+](https://mp.weixin.qq.com/s?__biz=MzAwNzQ5ODk3Nw%3D%3D&mid=2651036935&idx=2&sn=83f3fd9c227cee04eca26c2a52292cca&chksm=808a0089b7fd899f84c52a86fbf970b479a217ec6719f41f2763d76a105c17ffdd9243415fb4&scene=21&wechat_redirect)[螺丝 钉带你读书合集](https://mp.weixin.qq.com/s?__biz=MzAwNzQ5ODk3Nw%3D%3D&mid=2651036935&idx=2&sn=83f3fd9c227cee04eca26c2a52292cca&chksm=808a0089b7fd899f84c52a86fbf970b479a217ec6719f41f2763d76a105c17ffdd9243415fb4&scene=21&wechat_redirect) [指数基金之父：约翰博格](https://mp.weixin.qq.com/s?__biz=MzAwNzQ5ODk3Nw%3D%3D&mid=2651036845&idx=1&sn=b8388bff7e1300330bd46430f085cedb&chksm=808a0123b7fd883514e7b072410319cb778cb6a3b1e0ae5c07de13a322d67515f6dc48f501b1&token=1029203938&lang=zh_CN&rd)[+|+](https://mp.weixin.qq.com/s?__biz=MzAwNzQ5ODk3Nw%3D%3D&mid=2651036845&idx=1&sn=b8388bff7e1300330bd46430f085cedb&chksm=808a0123b7fd883514e7b072410319cb778cb6a3b1e0ae5c07de13a322d67515f6dc48f501b1&token=1029203938&lang=zh_CN&rd)[螺丝钉带你读书](https://mp.weixin.qq.com/s?__biz=MzAwNzQ5ODk3Nw%3D%3D&mid=2651036845&idx=1&sn=b8388bff7e1300330bd46430f085cedb&chksm=808a0123b7fd883514e7b072410319cb778cb6a3b1e0ae5c07de13a322d67515f6dc48f501b1&token=1029203938&lang=zh_CN&rd) [人生有限，做自己最喜欢的事](https://mp.weixin.qq.com/s?__biz=MzAwNzQ5ODk3Nw%3D%3D&mid=2651036966&idx=1&sn=9c9e7016787df5acbdd79c90652a9b0e&chksm=808a00a8b7fd89beedf2dc6ffb501c99e42c80f8707e453e33c2ff74235dbed31f2d19e4d3c8&token=1198479190&lang=zh_CN&rd)[+|+](https://mp.weixin.qq.com/s?__biz=MzAwNzQ5ODk3Nw%3D%3D&mid=2651036966&idx=1&sn=9c9e7016787df5acbdd79c90652a9b0e&chksm=808a00a8b7fd89beedf2dc6ffb501c99e42c80f8707e453e33c2ff74235dbed31f2d19e4d3c8&token=1198479190&lang=zh_CN&rd)[螺丝钉带你读书 燕雀安知鸿](https://mp.weixin.qq.com/s?__biz=MzAwNzQ5ODk3Nw%3D%3D&mid=2651036966&idx=1&sn=9c9e7016787df5acbdd79c90652a9b0e&chksm=808a00a8b7fd89beedf2dc6ffb501c99e42c80f8707e453e33c2ff74235dbed31f2d19e4d3c8&token=1198479190&lang=zh_CN&rd) [鹄之志？约翰博格自立门户](http://m.ximalaya.com/80601762/album/13285886)[+|+](http://m.ximalaya.com/80601762/album/13285886)[螺丝钉带你读书 银行螺丝钉带 你读书](http://m.ximalaya.com/80601762/album/13285886)[_](http://m.ximalaya.com/80601762/album/13285886)[商业财经在线收听](http://m.ximalaya.com/80601762/album/13285886)[-](http://m.ximalaya.com/80601762/album/13285886)[喜马拉雅](http://m.ximalaya.com/80601762/album/13285886)[FM](http://m.ximalaya.com/80601762/album/13285886)
+
+2019-01-05(14 赞)
+
+评论区：
+
+Audrey : 钉大最近开始出现什么可以介绍的美股可投资的指数基金吗？ 食米马伞 : 再等等吧
