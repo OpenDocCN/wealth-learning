@@ -1,0 +1,10 @@
+# 斗鱼虎牙两节目被指低俗尺度大，网友举报（图）
+
+> 原文：[`mp.weixin.qq.com/s?__biz=MzIyMDYwMTk0Mw==&mid=2247522231&idx=1&sn=5bed1a091e1def4e4023cf1c4a7b30b8&chksm=97cb5c8fa0bcd59946063bcad89f64f5f241d51eab2449e501ec1b69a0b7989d6b6837b3b94c&scene=27#wechat_redirect`](http://mp.weixin.qq.com/s?__biz=MzIyMDYwMTk0Mw==&mid=2247522231&idx=1&sn=5bed1a091e1def4e4023cf1c4a7b30b8&chksm=97cb5c8fa0bcd59946063bcad89f64f5f241d51eab2449e501ec1b69a0b7989d6b6837b3b94c&scene=27#wechat_redirect)
+
+三言财经消息，近日，有网友反映，在斗鱼近日举办的 DOTA2 TI 宅话会直播中，活动女嘉宾涉嫌穿着暴露、做出舔瓶盖、蹭抱枕性暗示动作。
+![](img/9677017ee2bafcf34e3c6fc58c2fce65.png "2721634189693_.pic.jpg")![](img/ee1d378322c974b0fd454cdbff26a67a.png "2711634189675_.pic.jpg")![](img/97dd2feb7f19601692528d7b691f5b87.png)![](img/227aba068ba8a9c5090740b3332adf41.png "image106.png")![](img/20ad2ac990b9b786604a3cada9e53dcc.png "image107.png")![](img/65a6ecd68d349d199d51cd7759d1dbd5.png "image109.png")网上有截图显示，有人以涉嫌淫秽色情在扫黄打非网举报了斗鱼。![](img/9daf8a0c6f00ab5591c9e1e365f5afa8.png "image112.png")此外，虎牙的英雄联盟 S11 活动也被指涉嫌低俗，女嘉宾弯腰射箭、穿短裙跳绳走光、摔跤。![](img/efb22715861d37b45d227017438baab1.png "image113.png")![](img/e0a28406e0fe4a4ffc43e3ab0f5542f7.png "33141634190637_.pic.jpg")![](img/d577f6a0391049d6e8cb7b2eb409c554.png "33131634190625_.pic_hd2.jpg")有网友称，虎牙和斗鱼的节目太低俗了，离被封不远了。![](img/6f3df8af78151daccca65f54fb766ac6.png "33111634190482_.pic.jpg")![](img/315789bc253f82d54ffc093beccaec02.png "33101634190373_.pic.jpg")来源：三言财经![](img/a761c294fffd9950263df7483a921c3f.png "小米 6-0419.055.gif")![](https://mp.weixin.qq.com/s?__biz=Mzg5ODAwNzA5Ng==&mid=2247486973&idx=1&sn=a5e558a64b01b49e7e3b12bce003a55c&chksm=c06864aaf71fedbc9db3d77b04c7862b5eb9c99a06c235772298a2f26785941079a733e279ee&token=721468994&lang=zh_CN&scene=21#wechat_redirect)![](img/e364e49a20f1885b3b2557f1b227d3fc.png "小米 6-0419.052.gif")
+
+← 向右滑动与灰产圈互动交流 →
+
+![](img/16fe77ebe2b9a75a1914d8d98ac8faf6.png)

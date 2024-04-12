@@ -1,0 +1,20 @@
+# 醒醒吧，翡翠和韭菜，一个颜色
+
+> 原文：[`mp.weixin.qq.com/s?__biz=MzIyMDYwMTk0Mw==&mid=2247523228&idx=5&sn=a7ae6ae141a48b43344e00b4533a1e43&chksm=97cb50a4a0bcd9b243a560ae53c94240a615dd8d2cf3eaaf79e2439841c01f7f190520685571&scene=27#wechat_redirect`](http://mp.weixin.qq.com/s?__biz=MzIyMDYwMTk0Mw==&mid=2247523228&idx=5&sn=a7ae6ae141a48b43344e00b4533a1e43&chksm=97cb50a4a0bcd9b243a560ae53c94240a615dd8d2cf3eaaf79e2439841c01f7f190520685571&scene=27#wechat_redirect)
+
+**“一刀穷，一刀富，一刀披麻布”**。在直播间里，在云南瑞丽，或者更遥远的缅甸，这句行话传了又传，概括了几百年来人们痴迷于“赌石”的原因。这里小珊给大家普及一下**“赌石”**的概念。 赌石就是卖家拿一块未切割的原石并出价，它里面可能是块玉石，也可能是低品质宝石或者普通石头，需要买家自行判断。 小珊发现，在赌石这个行业，有着各种各样真假难辨的的故事。有人说赌石是一种综合专业知识，资金实力乃至运气的活动。有人说赌石存在以小博大，是一条发财致富之道。![](img/bf872266bd0f3b40b856bef392b24173.png)还有人开了直播，直播赌石或者卖原石，鼓励观看者们下注或者购买原石，时不时就蹦出一句“**恭喜这位小姐姐，开出一颗妖紫大巴!**”，可谓热闹非凡。虽然换了无数种形式，但他们其实做的都是同一件事。**割韭菜！**![](img/6035bca5e32472a67c92b4af6614cc7d.png)前段时间。一个带货“玉石”的直播中，网友正期待捡“大漏”。忽然画风突转，只听见一阵紧促的“趴下，趴下”声，画面变成了警方抓捕直播。原来，这是柳州市公安局经过 3 个多月的缜密侦查，实施的一次抓捕行动。通过多地围剿，打掉了一个涉案 500 余起、案值千万元的特大“杀猪盘”电信诈骗团伙，**查获假玉石原石约 1 吨**，劣质珠宝首饰一批。![](img/14ce208e1092b2262c1720651dbc9ad6.png)这个案子中，诈骗团队先组织“业务员”**冒充美女在互联网上以婚恋、交友为名，骗取受害者信任**。![](img/9ebbe7160f6f32ce3c882b9e2f6892e8.png)然后**诱导受害者进入“赌石”直播间**，营造玉好假象，让对方购买劣质玉石首饰送给女方及双方亲戚等……常见的赌石直播骗局则更加直接。他们怎么操作的呢？ **首先，演得一手好戏。**赌石直播间经常会出现这种画面：货主报价 20000，主播说 200。![](img/a3df7b93ddac5cb5c5053a1e84d7947d.png)那货主脸色立马变了，伸手就要把翡翠原石抢回来，通过这种争抢的画面，让观众觉得“这真的超值啊”，但其实，两人只是在演戏。
+
+![](img/33a0f023ab094c04363a1ddc73883513.png)
+
+还有一些商家还会雇佣缅甸籍人员冒充毛料市场摊主来扫货，网络主播则以砍价为名来骗取毛料费、加工费、鉴定费等等。**其次，赌石直播间的卖家通常都懂得利用灯光营造种“水好”假象。**打灯看玉是赌石的常用手段，但赌石直播间的灯总是特别亮，显得翡翠原石特别的通透，种水特别的好。![](img/6d3d837b8ff4b5521905bd3945f7edab.png)**除此之外，还会使用一些“特殊道****具”。**成本最低的套路是使用糖浆，嗯，就是白砂糖的那个糖浆。看看下面的图，一个普通石头。用糖浆来涂抹开口处。![](img/7df33014728afd4e12fd0466d8fd8a6f.png)等糖浆干了，就成了色彩鲜艳的大马坎开窗，要你 1W 块不多吧，但成本也就 30 块。![](img/ade48ca697aee0be301fc0f7bff47fcd.png)然后我们再做一道家庭作业。![](img/ac01f2b616ccfc0db7a067f83b4f7076.png)这块所谓的【开窗翡翠】，用什么口味的糖浆来做才更正宗呢？受害者一旦在直播间下单，基本收到的都是假货。
+**所以，与其说你输掉了一场赌局，不如说是输掉了一场早已安排好的骗局![](img/3a1898cc638b09f48016c2edf9276ec1.png)。**
+
+![](img/212fa9cdfb9ed6c2908afa565fc3cce5.png)
+
+那有同学就说了，但我看直播间确实有人普通的价格开出了玻璃种，开出了帝王绿啊，评论区也有开出高品质玉石的案例。小珊可以提醒你的是，这些案例可能确实是真的，但无关运气好，也不是鉴石专家走眼了，这一切都是被设计好的![](img/28ed45e4381e40495b9edca12ad027f3.png)。<mpvideosnap class="js_uneditable custom_select_card channels_iframe" data-pluginname="videosnap" data-id="export/UzFfAgtgekIEAQAAAAAAaB8aFsq-wQAAAAstQy6ubaLX4KHWvLEZgBPEsKN0ShI7J_z9zNPgMIvkXilCbJXI9YoopPDtL7Ze" data-url="https://findermp.video.qq.com/251/20350/stodownload?encfilekey=XGocBFxVWK5dcyOOqpEU47RpBHQIvlhnicQzHEqic6tqUaoXNItrgY1RqfViaszAYmPhPQWDCNsITEq5s6tMI3zxQ6H4zzsEND7Mn9xMZFH8tHFHrA7rXO6SGSynmaXxNEuybyHjbMX2tWMemI97qdxdK6icbaBtFtkFlIic857ibhOKjwewGy8L6wdlD0wVEwbtOe&amp;adaptivelytrans=0&amp;bizid=1023&amp;dotrans=0&amp;hy=SH&amp;idx=1&amp;m=717e6ba7649e9f55d23147fe8a40050d&amp;token=x5Y29zUxcibC0PCHYeSRLoLvEoluWA1maBicvdqSf4J52tFnOqxTBD7Z8DSpKGtiaORoglHg0XwicOk" data-headimgurl="http://wx.qlogo.cn/finderhead/Q3auHgzwzM4vic7VYMSYbXibHmbfrkhwI92uYf9bZ9TD2SMFA0dBcgNw/0" data-username="v2_060000231003b20faec8cae1891bcadcce01e931b077b71557c83fd4d1acf8daa363d027c104@finder" data-nickname="南京壹诺珠宝有限公司" data-desc="直播间翡翠赌石骗局（下）
+珠宝行业真的可以线上捡漏吗？真的可以脱离售后服务吗？直播间珠宝行业的乱象谁之过？@人民网 @中宝协" data-nonceid="8536563403674545400" data-type="video"></mpvideosnap>作为赌石的顶层设计者，也不能让所有买家都亏，也要适量地放水，让成功案例在市场上传播。**但那个幸运儿不是你我，****而是卖家的亲朋好友。****![](img/de4803f44b9683046b2dcde8041edd0c.png)**最后，给大家总结一下。国内微商赌石和直播赌石基本全都是骗局，从故事到演员到货物到价格，**没有一个是真的**。只有他们的骗子身份，演技和收你的钱，是真的。![](img/31e3fd04d1d542207a287f8ff2b179a5.png)
+来源：微信珊瑚安全![](img/770d89ab5d7e43a5910b24641bc349ab.png "小米 6-0419.055.gif")![](https://mp.weixin.qq.com/s?__biz=Mzg5ODAwNzA5Ng==&mid=2247486973&idx=1&sn=a5e558a64b01b49e7e3b12bce003a55c&chksm=c06864aaf71fedbc9db3d77b04c7862b5eb9c99a06c235772298a2f26785941079a733e279ee&token=721468994&lang=zh_CN&scene=21#wechat_redirect)![](img/629701a7072f9d7689b876d26f1d2a4e.png "小米 6-0419.052.gif")
+
+← 向右滑动与灰产圈互动交流 →
+
+![](img/0190d4c2dbc4613c07cb7956dfa04e17.png)
