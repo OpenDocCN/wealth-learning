@@ -1,0 +1,5 @@
+# 有群男人在某宝买丰胸药，用来泌乳、催 QING，不仅自己吃还骗女孩吃
+
+> 原文：[`mp.weixin.qq.com/s?__biz=MzIyMDYwMTk0Mw==&mid=2247503137&idx=3&sn=384e331f078b82da078f4c0a70cff039&chksm=97cb0619a0bc8f0f9b82c75c74ef5c051888848311d23ca55a69d2e2f09ba5a02f9b46606640&scene=27#wechat_redirect`](http://mp.weixin.qq.com/s?__biz=MzIyMDYwMTk0Mw==&mid=2247503137&idx=3&sn=384e331f078b82da078f4c0a70cff039&chksm=97cb0619a0bc8f0f9b82c75c74ef5c051888848311d23ca55a69d2e2f09ba5a02f9b46606640&scene=27#wechat_redirect)
+
+<mp-miniprogram data-miniprogram-appid="wx7564fd5313d24844" data-miniprogram-path="pages/video/video?__preload_=16028631509601&amp;__key_=16028631509602&amp;avid=329867192" data-miniprogram-nickname="哔哩哔哩" data-miniprogram-avatar="http://mmbiz.qpic.cn/mmbiz_png/9gYq0FHZpd3UzcibfXVwGSZVqUcaibCnJkFroYjTXSr8yKceicCPkm3iaXNNcseSaA7s79H1JZntXoIza7gMVJ1V4Q/640?wx_fmt=png&amp;wxfrom=200" data-miniprogram-title="有群男人在某宝买丰胸药，用来泌乳、催 QING" data-miniprogram-imageurl="http://mmbiz.qpic.cn/mmbiz_jpg/WWG78hysZ0bAV5OjS88KMu0EgXOib6Wtodc3HMIkpmEjWovXNW6GDrXWaNic5jjFMfnoyvPVa3GicN3eZdGl4zGSQ/0?wx_fmt=jpeg" data-miniprogram-type="card" data-miniprogram-servicetype="0"></mp-miniprogram>
