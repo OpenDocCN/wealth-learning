@@ -1,0 +1,11 @@
+# 老师，为什么唐朝前
+
+# 老师，为什么唐朝前
+
+(提问)Akko Akko : 老师，为什么唐朝前期粟特人的地位很 高？听说是因为他们有马？
+
+2019-01-08
+
+回答：安禄山就是栗特人(1 赞)
+
+cg 有点才 : [也说三国史](https://mp.weixin.qq.com/s?__biz=MjM5Mjg0NTkzMw%3D%3D&mid=2649794386&idx=1&sn=8962502d3bb33032f5f6d922b14020cf&chksm=bea41e5089d397460d15b74b9ef485510917bfc16dc5675f6a505ab809bf95faa21025bbc9ec&scene=0&xtrack=1&key=d87fdc76ee8d34aae52640a8737c164a3f6fc8c60bf183f943fbe8c7c2b64d037d8a4d06ddcd68a01119664aa8e2dcc5412e7f44033800230ae45465e6786d24431264462453584ce9e80671691608b6&ascene=1&uin=MzM2OTkyNzA4Mw%253D%253D&devicetype=Windows-QQBrowser&version=6103000b&lang=zh_CN&pass_ticket=nL8tF2IozaOTaLqNFUxpnNgwz4iYAf0%252BlfRSXmmZhVCZfEdHEJSDUe%252FQ4qeWEXFH)[——](https://mp.weixin.qq.com/s?__biz=MjM5Mjg0NTkzMw%3D%3D&mid=2649794386&idx=1&sn=8962502d3bb33032f5f6d922b14020cf&chksm=bea41e5089d397460d15b74b9ef485510917bfc16dc5675f6a505ab809bf95faa21025bbc9ec&scene=0&xtrack=1&key=d87fdc76ee8d34aae52640a8737c164a3f6fc8c60bf183f943fbe8c7c2b64d037d8a4d06ddcd68a01119664aa8e2dcc5412e7f44033800230ae45465e6786d24431264462453584ce9e80671691608b6&ascene=1&uin=MzM2OTkyNzA4Mw%253D%253D&devicetype=Windows-QQBrowser&version=6103000b&lang=zh_CN&pass_ticket=nL8tF2IozaOTaLqNFUxpnNgwz4iYAf0%252BlfRSXmmZhVCZfEdHEJSDUe%252FQ4qeWEXFH)[陈寅恪的视角](https://mp.weixin.qq.com/s?__biz=MjM5Mjg0NTkzMw%3D%3D&mid=2649794386&idx=1&sn=8962502d3bb33032f5f6d922b14020cf&chksm=bea41e5089d397460d15b74b9ef485510917bfc16dc5675f6a505ab809bf95faa21025bbc9ec&scene=0&xtrack=1&key=d87fdc76ee8d34aae52640a8737c164a3f6fc8c60bf183f943fbe8c7c2b64d037d8a4d06ddcd68a01119664aa8e2dcc5412e7f44033800230ae45465e6786d24431264462453584ce9e80671691608b6&ascene=1&uin=MzM2OTkyNzA4Mw%253D%253D&devicetype=Windows-QQBrowser&version=6103000b&lang=zh_CN&pass_ticket=nL8tF2IozaOTaLqNFUxpnNgwz4iYAf0%252BlfRSXmmZhVCZfEdHEJSDUe%252FQ4qeWEXFH) 2019-01-08(2 赞)
