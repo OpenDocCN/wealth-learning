@@ -1,0 +1,5 @@
+# 灰产为何无孔不入：上大众点评招嫖，在闲鱼上约炮
+
+> 原文：[`mp.weixin.qq.com/s?__biz=MzIyMDYwMTk0Mw==&mid=2247507221&idx=2&sn=1bf27ef45fa94c5023378aaf2b4267e7&chksm=97cb162da0bc9f3b6b47bc0eb47214061d6a40cf33b2c80bdc4cf27a89d18764ded58957e2bc&scene=27#wechat_redirect`](http://mp.weixin.qq.com/s?__biz=MzIyMDYwMTk0Mw==&mid=2247507221&idx=2&sn=1bf27ef45fa94c5023378aaf2b4267e7&chksm=97cb162da0bc9f3b6b47bc0eb47214061d6a40cf33b2c80bdc4cf27a89d18764ded58957e2bc&scene=27#wechat_redirect)
+
+<mp-miniprogram data-miniprogram-appid="wx7564fd5313d24844" data-miniprogram-path="pages/video/video?__preload_=16095884305863&amp;__key_=16095884305864&amp;avid=627830044" data-miniprogram-nickname="哔哩哔哩" data-miniprogram-avatar="http://mmbiz.qpic.cn/mmbiz_png/9gYq0FHZpd3UzcibfXVwGSZVqUcaibCnJkFroYjTXSr8yKceicCPkm3iaXNNcseSaA7s79H1JZntXoIza7gMVJ1V4Q/640?wx_fmt=png&amp;wxfrom=200" data-miniprogram-title="上大众点评招嫖，在闲鱼上约炮" data-miniprogram-imageurl="http://mmbiz.qpic.cn/mmbiz_jpg/WWG78hysZ0b6qJMq3JWgibCQtw5C1pIicibsjOCongYWCHO1mPofWr3vbX7Yrs5LvsiazXEPpPoyVYWsfiab2XvB8Qw/0?wx_fmt=jpeg" data-miniprogram-type="card" data-miniprogram-servicetype="0"></mp-miniprogram>

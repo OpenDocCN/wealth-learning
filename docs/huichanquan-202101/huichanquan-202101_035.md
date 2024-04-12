@@ -1,0 +1,5 @@
+# 揭秘人体交易黑市：你死了，比活着更值钱
+
+> 原文：[`mp.weixin.qq.com/s?__biz=MzIyMDYwMTk0Mw==&mid=2247507545&idx=4&sn=380d2c1320da0a89fe56d63bfcd1b448&chksm=97cb1561a0bc9c777bf4264d13468985e7269ac1dd563df4b42aaa041cad226ad06831c09d66&scene=27#wechat_redirect`](http://mp.weixin.qq.com/s?__biz=MzIyMDYwMTk0Mw==&mid=2247507545&idx=4&sn=380d2c1320da0a89fe56d63bfcd1b448&chksm=97cb1561a0bc9c777bf4264d13468985e7269ac1dd563df4b42aaa041cad226ad06831c09d66&scene=27#wechat_redirect)
+
+<mp-miniprogram data-miniprogram-appid="wx7564fd5313d24844" data-miniprogram-path="pages/video/video?__preload_=16102812300761&amp;__key_=16102812300762&amp;avid=801014519" data-miniprogram-nickname="哔哩哔哩" data-miniprogram-avatar="http://mmbiz.qpic.cn/mmbiz_png/9gYq0FHZpd3UzcibfXVwGSZVqUcaibCnJkFroYjTXSr8yKceicCPkm3iaXNNcseSaA7s79H1JZntXoIza7gMVJ1V4Q/640?wx_fmt=png&amp;wxfrom=200" data-miniprogram-title="揭秘人体交易黑市：你死了，比活着更值钱" data-miniprogram-imageurl="http://mmbiz.qpic.cn/mmbiz_jpg/WWG78hysZ0aLEvR25DfFpH0TkrYa9AwHcTJicNlCmicNFkvC72c6CUZKnKzBzY6QAefR5PGIiazsBGQeCkje5wkmg/0?wx_fmt=jpeg" data-miniprogram-type="card" data-miniprogram-servicetype="0"> </mp-miniprogram>
