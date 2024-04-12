@@ -1,0 +1,10 @@
+  <svg xmlns="http://www.w3.org/2000/svg" x="0px" y="0px" viewBox="0 0 360 360" style="vertical-align: middle; max-width: 100%;" width="100%">
+   <g>
+    <polygon points="240,0 120,0 0,0 0,120 0,240 0,360 120,360 120,240 240,240 240,120 360,120 360,0" fill="rgb(255, 255, 255)">
+    </polygon>
+    <rect x="240" y="120" width="120" height="120" fill="rgb(0,0,0)">
+    </rect>
+    <rect x="120" y="240" width="120" height="120" fill="rgb(0,0,0)">
+    </rect>
+   </g>
+  </svg>
